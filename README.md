@@ -9,4 +9,4 @@ Tengo 20 años, soy de San martin, del barrio de Villa Ballester, este año deci
 
 Mi serie favorita y deberia ser la de todos es, Breaking Bad y mi pelicula fav, rapidos y furiosos 5 o cualquiera hasta la 7 que no hay autos en el espacio o que el dolape para un avion con un bm, tambien la saga de harry potter muy buena.
 
-no les pongo fotos porq no tengo, usualmente borro todo peroo si encuentro alguno la pongo :) 
+no les pongo fotos porq no tengo, usualmente borro todo peroo si encuentro alguna la subo :) 
