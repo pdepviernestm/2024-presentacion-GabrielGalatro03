@@ -1,10 +1,5 @@
-# presentacion-
+# Mi nombre es Gabriel Galatro-
 
-- Escriban presentación sobre ustedes.
-- Suban la presentación a Git.
-- Realicen algun cambio.
-- Suban los nuevos cambios.
-- Compartan el link por discord
-- Hagan algun comentario sobre el repositorio de algun otro compañere. Al menos 2.
-
-Ya saben usar git!
+- Estudiante de ingenieria en sistemas.
+- En mis tiempos libres juego al furbo.
+- No veo muchas peliculas si series asique recomienden.
